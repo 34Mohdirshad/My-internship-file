@@ -76,7 +76,7 @@ Communication with AI models
 
 👤 Mohd Irshad
 
-GitHub: 34MOHDIRSHAD 
+GitHub: @34MOHDIRSHAD 
 
 LinkedIn: https://linkedin.com/in/mohd-irshad-
 
